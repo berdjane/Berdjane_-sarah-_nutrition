@@ -37,4 +37,4 @@ Objectif : favoriser une perte de poids progressive et durable grâce à une ali
 Remarques
 - La perte de poids saine est généralement de 0,5–1 kg par semaine.
 - Les recommandations doivent être individualisées (âge, comorbidités, traitements, préférences alimentaires).
- Apartir de caa donner une correction pour copier dans exam cette réponse de le site mais donner execte et perfecte
+
